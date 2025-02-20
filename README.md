@@ -1,1 +1,2 @@
-![SighTheSecretLifeOfPetsGIF](https://github.com/user-attachments/assets/6ca88118-6e21-4dfe-be61-f167d29b5913)
+![GuyGuySenseiGIF](https://github.com/user-attachments/assets/bf5a5ce7-d17c-400b-87b7-f3a331752a3e)
+밤가이..밤진영..출격준비..
